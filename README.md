@@ -1,2 +1,2 @@
-# HatGame2
+------>https://jhbbjhafhash.github.io/HatGame2/<------
  
